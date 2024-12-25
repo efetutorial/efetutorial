@@ -1,5 +1,7 @@
+<h1 align="center">efetutorial</h1>
+<p align="center"> <img src="https://media1.tenor.com/m/iZhFwgxlRsgAAAAd/anime-megumin.gif" /> </p>
 
-- İletişim: **1@ef3e.com.tr, @efetutorial on instagram or discord**
+-Contact: @efetutorial on instagram or discord**
 
 
 
