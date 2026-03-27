@@ -1,6 +1,4 @@
-<p align="center"> <img src="https://media1.tenor.com/m/iZhFwgxlRsgAAAAd/anime-megumin.gif" /> </p>
-
-- <h2>Contact: mail@efe.ninja, discord: @efetutorial
+Contact: mail@efe.ninja, discord: @efetutorial
 
 
 
