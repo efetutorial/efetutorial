@@ -1,4 +1,4 @@
-Contact: mail@efe.ninja, discord: @efetutorial
+Contact: me@efe.best, discord: @efetutorial
 
 
 
